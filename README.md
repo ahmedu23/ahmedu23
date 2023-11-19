@@ -1,0 +1,3 @@
+- 👋 Hi, I’m @ahmedu23
+- 👀 I’m interested in Law
+- 🌱 I’m currently learning Law
